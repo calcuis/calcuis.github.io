@@ -1,1 +1,1 @@
-[https://calcuis.org](https://calcuis.org)
+[https://calcuis.us](https://calcuis.us)
